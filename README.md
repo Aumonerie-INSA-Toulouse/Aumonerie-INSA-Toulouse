@@ -1,0 +1,2 @@
+- 👋 @Aumonerie-INSA-Toulouse - regroupement d'élèves de l'INSA (actuellement fusionné avec l'ENAC et Supaero)
+- Toutes les infos sur https://linksta.cc/@Aumonerie-INSA-Toulouse
